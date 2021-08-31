@@ -1,3 +1,3 @@
-### Raúl Almorox ⚡
+# Raúl Almorox  ⚡
 
-![image text](https://imgur.com/a/T7JubKl)
+![image text](https://github.com/Almorox13/Almorox13/blob/main/Banner.png)
